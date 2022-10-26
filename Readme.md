@@ -23,3 +23,7 @@ may someday en life ah vitu pls konjom poriya
 ekka sakka
 raamuna nattune
 changes
+everyone changes
+everyone fucks
+everyone are same
+am not fit for the ppl
